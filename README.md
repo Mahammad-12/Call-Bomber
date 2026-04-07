@@ -1,4 +1,4 @@
-# Call-Bomber
+# Call-Bomber - Azerbaijan Version
 Purchase & License
 Whatsapp - +994 55 226 84 85
 ____________________________________________________________
