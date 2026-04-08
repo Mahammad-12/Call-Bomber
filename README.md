@@ -9,6 +9,7 @@ Proqramı satın almaq üçün adminlə əlaqə saxlayın:
 
 * **WhatsApp:** +994 55 226 84 85
 * **Status:** 🟢 Aktiv (Satış davam edir)
+* ⚠️ Qeyd: Rəqəmsal məhsul olduğu üçün hər hansı bir problem yaranarsa geri ödəmə yoxdur, yalnız texniki dəstək mövcuddur.
 
 ---
 
